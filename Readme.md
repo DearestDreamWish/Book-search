@@ -20,3 +20,11 @@ https://nostarch.com/
 
 https://www.routledge.com/
 
+https://shop.elsevier.com/books 
+
+https://link.springer.com/
+
+https://www.wiley.com/en-dk
+
+https://www.manning.com/
+
